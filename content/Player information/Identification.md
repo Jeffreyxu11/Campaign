@@ -1,0 +1,1 @@
+People usually gets their identification tags from the guild they join in the form of a dog-tag with a small imprint of your soul.
