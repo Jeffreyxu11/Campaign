@@ -1,1 +1,1 @@
-![](../Armanti%203.png)
+![](../Armanti%201.png)
